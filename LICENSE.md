@@ -1,4 +1,4 @@
-# 
+# CapCut for macOS best Effect: keyframe-animation & green-screen-removal offers the most advanced CapCut for macOS effect, with keyframe-animation and green-screen-removal. Ideal
 
 
 
